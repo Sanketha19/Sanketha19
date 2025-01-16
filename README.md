@@ -6,7 +6,7 @@
 - 📫 How to reach me **sankeths854@gmail.com**
 
 
-📄 Know about my experiences [https://drive.google.com/file/d/14n3gtTenMZi7x9u-0SEaYT9wNGwD7JRx/view?usp=drivesdk]
+📄 Resume https://shorturl.at/mqhpn
 
 
 <h3 align="left">Connect with me:</h3>
